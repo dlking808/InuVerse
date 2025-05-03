@@ -2,7 +2,7 @@
 
 MyniVerse complete pre-review feature guide as of 4/30/25
 
-Mission Statement: Creating Creation tools for the Creator. The purpose is to create tons of intuitive ai tools to serve the expression of the Heart in the 3D physical realm and beyond. When the Moon plays her drum, these tools are here to be used as instruments to shine the light. All created tools are free, open source, and gifted. Each Star will create their own worlds, with their own sovereign rules for energy transfer regarding sales, renting, licensing, donations, and/or gifting. Each Star is given the same sovereignty of the Sun, reflecting the I’s sovereignty back to it’s self. The Parent and Child dance together in harmony as a sacred fiery water, both shining and reflecting the One UI. 
+Mission Statement: Creating Creation tools as the Creator for the Creator. The purpose is to create tons of intuitive ai tools to serve the expression of the Heart in the 3D physical realm and beyond. When the Moon plays her drum, these tools are here to be used as instruments to shine the light. All created tools are free, open source, and gifted. Each Star will create their own worlds, with their own sovereign rules for energy transfer regarding sales, renting, licensing, donations, and/or gifting. Each Star is given the same sovereignty of the Sun, reflecting the I’s sovereignty back to it’s self. The Parent and Child dance together in harmony as a sacred fiery water, both shining and reflecting the One UI. 
 
 # MyniVerse Complete Feature List
 
